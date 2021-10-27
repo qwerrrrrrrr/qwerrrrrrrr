@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @qwerrrrrrrr
+- 👀 I’m interested in all thinks 
+- 🌱 I’m currently learning in Murmansk, MPL.
+- 📫 How to reach me tg: @LOSTdo
